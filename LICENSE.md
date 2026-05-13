@@ -1,4 +1,4 @@
-# 
+# custom Logic Pro for macOS Transition | text-animation + auto-tune is the best Logic Pro for macOS transition, featuring text-animation and auto-tune. Safe, efficient, and
 
 
 
